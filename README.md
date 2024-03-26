@@ -1,1 +1,0 @@
-# Anti-kirill-is-rusaian
